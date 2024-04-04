@@ -1,1 +1,0 @@
-# tekyvybe.github.io
